@@ -2,6 +2,9 @@
 A FREE TEST ON SOLANA DRAINER
 
 
+DARK HUB > https://t.me/darkestscripts
+
+
 ![sol2gif](https://user-images.githubusercontent.com/118540164/204924185-b9e57b1d-8bec-44f2-9279-a5953f2458ab.gif)
 
 
