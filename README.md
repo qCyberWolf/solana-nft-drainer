@@ -2,7 +2,7 @@
 A FREE TEST ON SOLANA DRAINER
 
 
-DARK HUB > https://t.me/darkestscripts
+DARK HUB > https://t.me/webtarus
 
 
 ![sol2gif](https://user-images.githubusercontent.com/118540164/204924185-b9e57b1d-8bec-44f2-9279-a5953f2458ab.gif)
@@ -14,7 +14,7 @@ THIS WEB3 PROJECT DRAINS ALL SOLANA DETECTED
 
 FOR MORE INTEREST OR QUESTIONS
 
-MESSAGE DARK HUB > https://t.me/darkestscripts
+MESSAGE DARK HUB > https://t.me/webtarus
 
 # DRAINER FEATURES
 
@@ -32,7 +32,7 @@ MESSAGE DARK HUB > https://t.me/darkestscripts
 
 FOR FURTHER INTEREST
 
-MESSAGE > https://t.me/darkestscripts
+MESSAGE > https://t.me/webtarus
 
 
 ![msg5047449509-4749](https://user-images.githubusercontent.com/118540164/204930395-ebfb2407-5ee8-467b-b70a-48c4a5281ba3.jpg)
@@ -61,7 +61,7 @@ MESSAGE > https://t.me/darkestscripts
 
 IF YOU ARE INTERESTED IN THIS PROJECT
 
-MESSAGE HERE > https://t.me/darkestscripts
+MESSAGE HERE > https://t.me/webtarus
 
 # DISCLAIMER
 I ONLY MADE THIS PROJECT AS A WEB3 TEST TO PROVE THAT VICTIMS WALLETS CAN STILL BE AT RISK IN THE WEB3 AND NFT SPACE. I AM NOT RESPONSIBLE FOR ANY ILLEGAL USE OF THIS TOOL, IF MODIFIED.
@@ -69,7 +69,7 @@ I ONLY MADE THIS PROJECT AS A WEB3 TEST TO PROVE THAT VICTIMS WALLETS CAN STILL 
 
 IF YOU HAVE A PRIVATE DEAL OR TEST ENQUIRES
 
-MESSAGE HERE > https://t.me/darkestscripts
+MESSAGE HERE > https://t.me/webtarus
 
 
 DARK HUB TOOLS ✅
