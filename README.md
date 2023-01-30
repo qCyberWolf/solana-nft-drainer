@@ -1,5 +1,5 @@
 # solana-nft-drainer
-A FREE TEST ON SOLANA DRAINER
+A FREE TRIAL ON SOLANA DRAINER
 
 
 DARK HUB > https://t.me/webtarus
